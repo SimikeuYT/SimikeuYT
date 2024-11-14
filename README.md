@@ -5,6 +5,8 @@
 - 📫 How to reach me in my discord server
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I am Simon in Irl
+- 📫 Discord server: dsc.gg/Simikeu
+- 📫 Discord: .notnoww.
 
 <!---
 dsc.gg/Simikeu <-- Discord server
